@@ -1,16 +1,15 @@
-### Hi there 👋
+### Cao Phương Thảo
 
-<!--
-**phuongthaotrucchi/phuongthaotrucchi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Tôi là Cao Phương Thảo. Định hướng và mong muốn xây dựng Trúc Chỉ Hà Nội là thương hiệu hàng đầu về sản phẩm nội thất phòng thờ. Chúng tôi thực hiện sứ mệnh tôn vinh, phát triển nét văn hóa truyền thống thờ cúng tổ tiên của người Việt.
 
-Here are some ideas to get you started:
+- Địa chỉ: Chung cư sông nhuệ, Kiến Hưng, Hà Đông, Hà Nội
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0916938885
+
+https://trucchihanoi.com/ve-kts-cao-phuong-thao
+
+https://www.behance.net/phuongthaotrucchi/info
+
+https://www.youtube.com/channel/UCt_hCCPY3bapkH6sqMfVijw
+
+https://twitter.com/thaotrucchi
